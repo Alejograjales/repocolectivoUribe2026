@@ -1,1 +1,1 @@
-# repocolectivoUribe2026
+# repocolectivoUribe2026 🤖
